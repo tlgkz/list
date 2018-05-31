@@ -1,3 +1,5 @@
-Все Казахстанские Telegram каналы и группы\n
-Наш сайт: http://tlgrm.kz\n
+Все Казахстанские Telegram каналы и группы
+
+Наш сайт: http://tlgrm.kz
+
 Мы в Telegram: https://t.me/tlgkz
